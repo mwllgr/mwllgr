@@ -1,5 +1,5 @@
 ### 👋 Thanks for visiting my page!
 Got questions?
 
-**Mail**: [mwllgr@inscomers.net](mailto:mwllgr@inscomers.net)  
+**Mail**: [decrypted@encrypted.net](mailto:decrypted@encrypted.at)  
 **Instant messaging:** [@marcw:encrypted.at](https://matrix.to/#/@marcw:encrypted.at) (Via Matrix/Element)
